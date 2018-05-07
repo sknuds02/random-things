@@ -1,5 +1,3 @@
 # random-things
-????
 
-I have no idea
-How this will work
+https://wool-condition.glitch.me/
